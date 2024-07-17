@@ -10,7 +10,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=hyperrr69&label=Profile%20views&color=0e75b6&style=flat" alt="hyperrr69" /> </p>
 
-- 👨‍💻 All of my projects are available at [http://127.0.0.1:5500/index.html](http://127.0.0.1:5500/index.html)
+
 
 - 📫 How to reach me **vadalianevil3388@gmail.com**
 
