@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **vadalianevil3388@gmail.com**
 
-- 📄 Resume [https://drive.google.com/file/d/1bW4lNTSpGL9Z5jd64yXUlTGnllgE6WvZ/view?usp=drive_link](https://drive.google.com/file/d/1bW4lNTSpGL9Z5jd64yXUlTGnllgE6WvZ/view?usp=drive_link)
+- 📄 Resume [https://drive.google.com/file/d/159GqRcgBLceTnbu7MEtKoauPFS97G9_J/view?usp=drive_link](😁)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
